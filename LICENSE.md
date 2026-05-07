@@ -1,4 +1,4 @@
-
+blue lock rivals professional Script is the best blue lock rivals Script, featuring infinite resources and no clip. Safe and powerful for all your
 
 
 
